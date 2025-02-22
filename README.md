@@ -30,7 +30,7 @@ SSR节点分享网站,SS加速器,SS机场节点,ssr梯子,免费加速器,免�
 ## NICloud机场梯子
 [**点击直达官网「12元/月」**](https://go.1vpn.cc/nisi)
 
-![](https://pic.imgdb.cn/item/652d2a58c458853aefd8932b.jpg)
+![](https://www.cnvintage.org/assets/files/2025-02-22/1740203667-484776-f3c335ee-098a-4f4c-8ea9-61ff6058f0fd.jpeg)
 
 NICloud是一家多年的老牌高速全隧道多节点机场，拥有100多个节点和50多个V2Ray节点。同时提供多种付费套餐可选，最低只要12元，性价比超高。
 
